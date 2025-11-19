@@ -45,4 +45,4 @@ Seguir desenvolvendo soluções úteis, consolidando minha base técnica e avan�
 
 
 ## Contato
-**natanaelllopes@gmail.com**
+**ng.lopes@hotmail.com**
